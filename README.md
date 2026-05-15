@@ -6,4 +6,3 @@
 - 🤔 I’m looking for help with learning Java and Python
 - 📫 How to reach me: About Reddit or Discord
 - 😄 Pronouns: he / him
-- ⚡ Fun fact: I am the Admin of the Discord in my Describtion
