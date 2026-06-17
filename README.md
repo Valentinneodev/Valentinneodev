@@ -5,4 +5,4 @@
 - 🌱 I’m currently learning Python and Java
 - 🤔 I’m looking for help with learning Java and Python
 - 📫 How to reach me: About Reddit or Discord
-- 😄 Pronouns: he / him
+- 😄 Pronouns: she / him
